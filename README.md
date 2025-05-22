@@ -69,6 +69,7 @@ Caso queira saber um pouca mais sobre mim aqui estao as minhas qualificações "
 
 ---
 ### 📊 Estatísticas
+`🚧 Carreira em construção — em breve esse status vai melhorar! Obrigado pela paciência.`
 
 <p>
   <img 
